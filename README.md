@@ -1,4 +1,5 @@
-![colo](https://github.com/user-attachments/assets/f7c147dc-aa15-49c1-8019-a3fc44f34959)
+![OLO](https://github.com/user-attachments/assets/7c252a3c-13fa-4f0c-97a1-d200d18c3fa9)
+
 
  Logo Design for InternIntelligence
 
